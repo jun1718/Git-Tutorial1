@@ -40,3 +40,10 @@ jun1718의 블로그에 가려면 [여기](https://blog.naver.com/gbeovhsqhtka)�
 **치킨** 먹다가 ~~두드러기~~ 났어요. ㅠㅠ
 
 [유튜버 동빈나님 영상보러가기](https://www.youtube.com/watch?v=MFJIOqxK6k8&list=PLRx0vPvlEmdD5FLIdwTM4mKBgyjv4no81&index=11)
+
+
+
+참고
+
+1)하이
+    * 예압
