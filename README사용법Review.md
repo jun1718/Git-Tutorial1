@@ -46,6 +46,5 @@ jun1718의 블로그에 가려면 [여기](https://blog.naver.com/gbeovhsqhtka)�
 참고
 
 1)하이
-
-    * 예압
-        * ㅇㅎ
+  * 예압
+    * ㅇㅎ
